@@ -34,4 +34,4 @@ For inquiries, please visit our [LinkTree](https://linktr.ee/nightingaleadvocacy
 
 ---
 
-© 2024 Nightingale Advocacy. All rights reserved.
+© 2025 Nightingale Advocacy. All rights reserved.
